@@ -1,4 +1,4 @@
-# 
+# Instant Vegas Pro for PC plugins is the best Vegas Pro for PC plugins with stream-scheduling and batch-processing. Safe, reliable, and optimized for maximum performance.
 
 
 
